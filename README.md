@@ -1,1 +1,1 @@
-# Santo-One-Page-Template
+# Hex-One-Page-Template
