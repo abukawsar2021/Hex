@@ -1,1 +1,1 @@
-# Santo-One-Page-Template-
+# Santo-One-Page-Template
